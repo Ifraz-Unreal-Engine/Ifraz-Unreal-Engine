@@ -2,6 +2,6 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Unreal Engine
 - 📫 How to reach me ifrazmokim@gmail.com
-- 😄 Pronouns: Ifraz(e-fras)
+- 😄 how to say my name: Ifraz(e-fraz)
 - ⚡ Fun fact: I Know Coding
 - : )
